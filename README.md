@@ -1,25 +1,2 @@
-
-
-
-
-
-
-
-
-
-https://github.com/4COURT/4COURT/assets/122230413/03ebbbfd-4bde-4e6c-9d8f-0da2a3f4b699
-
-
-
-
-https://github.com/4COURT/4COURT/assets/122230413/ef8e5a58-9d83-4b8e-9c19-129e416628b1
-
-the ponytown courtroom 2024 (ft. lawyer maza) groupchat ^ 
-
-
-
-
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⵌ﹕ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ do **not** copy/colorpick my skins i will find you
-
-![ATp8Wbzs7sU1AAAAAElFTkSuQmCC](https://github.com/DoppoKannonzaka/DoppoKannonzaka/assets/122230413/ef80cdc1-5973-4cf3-adad-477270f21350)
-
+ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ![https://www.tumblr.com/lavendergalactic](https://64.media.tumblr.com/7dbb80e2260fdb83014cf30508dfc720/91b50a3b608f2da0-82/s640x960/e41339b68f5f0c5dce6ab2cb45af58be7be96de4.gifv)
+![https://www.tumblr.com/lavendergalactic](https://64.media.tumblr.com/ba646136a44684d3b4791affc2b4a15b/91b50a3b608f2da0-25/s640x960/f5f1a92d4f2591578484b09bf09c1caccb3aefa4.gifv)![](https://cdn.discordapp.com/attachments/1007157881059151904/1212922449813831690/2c3863b9f8a353eb4983a7d1253226e3.png?ex=65f3990f&is=65e1240f&hm=be9cc133bb668f1496bfbd5d92f68817f015bcb40283a23757d42dd0556b4d09&)
